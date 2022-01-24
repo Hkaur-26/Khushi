@@ -1,0 +1,2 @@
+# Khushi
+For study
